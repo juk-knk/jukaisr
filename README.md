@@ -1,4 +1,4 @@
-# Jukai Sarai / 樹海さらゐ
+# Jukai Kinoko / 樹海蕈
 
 <img src="https://count.getloli.com/@jukaisr?name=jukaisr&theme=original-new&padding=5&offset=0&align=top&scale=1&pixelated=1&darkmode=auto" alt="visitor counter">
 
